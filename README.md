@@ -1,5 +1,5 @@
 ## Welcome!! i'm a simple student 😁
-⚙ Software engineer - 4/8 ⏳ -
+⚙ Software engineer - 5/8 ⏳ -
 💻 internet computer technician 🎓 -
 🧒🏻19 Y
  <div>
