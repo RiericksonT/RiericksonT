@@ -1,7 +1,7 @@
-## Welcome!! i'm a simple student 😁
-⚙ Software engineer - 5/8 ⏳ -
+## Welcome!! i'm a simple adventista student 😁
+⚙ Software engineer - 6/8 ⏳ -
 💻 internet computer technician 🎓 -
-🧒🏻19 Y
+🧒🏻20 Y
  <div>
   <a href="https://github.com/RiericksonT">
   <img height="180em" src="https://github-readme-stats.vercel.app/api?username=RiericksonT&show_icons=true&theme=dracula&include_all_commits=true&count_private=true"/>
