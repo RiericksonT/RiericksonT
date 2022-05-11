@@ -1,4 +1,4 @@
-## Welcome!! i'm a simple adventista student 😁
+## Welcome!! i'm a simple adventista student  😁
 ⚙ Software engineer - 6/8 ⏳ -
 💻 internet computer technician 🎓 -
 🧒🏻20 Y
