@@ -1,5 +1,5 @@
 ## Welcome!! i'm a simple adventista student  😁
-⚙ Software engineer - 6/8 ⏳ -
+⚙ Software engineer - 7/9 ⏳ -
 💻 internet computer technician 🎓 -
 🧒🏻20 Y
  <div>
